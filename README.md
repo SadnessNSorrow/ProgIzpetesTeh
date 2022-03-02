@@ -1,0 +1,2 @@
+# ProgIzpetesTeh
+Artūrs Ļebedevs

@@ -1,2 +1,2 @@
 # ProgIzpetesTeh
-Artūrs Ļebedevs
+Artūrs Ļebedevs 191RDB330
